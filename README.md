@@ -1,1 +1,0 @@
-# jiwonidaax-x.github.io
